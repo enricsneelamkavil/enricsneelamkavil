@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **Products**
 
-- 💬 Ask me anything about **Design**
+- 💬 Ask me anything about **Product Building / Design**
 
 - 📫 Reach me at **enricsneelamkavil@gmail.com**
 
